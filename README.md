@@ -1,1 +1,1 @@
-Secret Network | Shade Protocol Spartan
+Secret Network | Shade Protocol
