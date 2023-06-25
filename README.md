@@ -1,1 +1,1 @@
-Secret Network | Shade Protocol
+Data Science Journeyman
